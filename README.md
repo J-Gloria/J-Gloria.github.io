@@ -1,1 +1,1 @@
-# J-Gloria.github.io
+# gloriajohn.me
