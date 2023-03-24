@@ -1,1 +1,1 @@
-# gloriajohn.me/portfolio/
+# https://j-gloria.github.io/portfolio/
