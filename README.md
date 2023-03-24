@@ -1,1 +1,1 @@
-# gloriajohn.me
+# gloriajohn.me/portfolio/
