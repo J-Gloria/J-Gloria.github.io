@@ -1,1 +1,1 @@
-# https://j-gloria.github.io/portfolio/
+# https://j-gloria.github.io
